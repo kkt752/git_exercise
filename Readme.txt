@@ -1,3 +1,3 @@
-hey, man 
-read me!
+hey, man    :)
+read me! :)
 please read me~~!! :) :) :)
